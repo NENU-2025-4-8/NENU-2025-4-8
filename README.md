@@ -17,3 +17,8 @@
 这就是 NENU 信科的作风么？
 
 这就是东北师范大学信息科学与技术学院的作风么？
+
+## Since April 2025, there have reportedly been numerous aggressive text attacks targeting a 2024 Computer Science graduate student at NENU
+
+The offensive content allegedly came from various places within the department. The person being attacked is reportedly being labeled as having mental health issues. Some administrative staff (including someone surnamed Han) are allegedly involved, and there are claims that the department wants the person to undergo psychiatric evaluation.
+Is this the approach/style of NENU's Computer Science and Technology Department? Is this the approach/style of Northeast Normal University's School of Information Science and Technology?
