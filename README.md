@@ -1,16 +1,19 @@
-## Hi there 👋
 
-<!--
-**NENU-2025-4-8/NENU-2025-4-8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+# NENU
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+2025年4月起大量的攻击性文字攻击2024级信科学硕某同学
+
+攻击性文字和资料来自学院的各个地方，被攻击的人还要被指认有精神病，你们说搞笑不搞笑
+
+重要人物：韩某、等行政人员
+
+学院还想让别人去精神科检查，笑死。
+
+这就是 NENU 信科的作风么？
+
+这就是 NENU 信科的作风么？
+
+这就是 NENU 信科的作风么？
+
+这就是东北师范大学信息科学与技术学院的作风么？
